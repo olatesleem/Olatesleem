@@ -62,7 +62,7 @@ Current Focus
 
 Connect
 
-* GitHub: @Olatesleem
+* GitHub: [@Olatesleem](https://github.com/Olatesleem)
 
 ⸻
 
